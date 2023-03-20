@@ -8,7 +8,7 @@ I'm Pea 🤑🤑
 🤖
 I am studying for a bachelor's degree in Computer  @Rajamangala University of Technology Thanyaburi
 
-
+Email : pea432100@gmail.com
 
 <!--
 **pphisit/pphisit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
