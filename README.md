@@ -5,7 +5,8 @@ Hi there 👋
 
 I'm Pea 🤑🤑
 
-🤖 I'm a student @Rajamangala University of Technology Thanyaburi
+🤖
+I am studying for a bachelor's degree in Computer  @Rajamangala University of Technology Thanyaburi
 
 
 
